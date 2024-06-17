@@ -1,1 +1,3 @@
-# Srodowisko_Pracy_Informatyka
+Miłosz
+163450
+WAW_2023_L_N_II_INF7_C2
